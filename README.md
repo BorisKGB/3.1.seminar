@@ -9,3 +9,4 @@
 	* Зайти в машину :smile:
 	* Поехать :stuck_out_tongue_closed_eyes:
 	* Забрать друзей
+sdfsdf
